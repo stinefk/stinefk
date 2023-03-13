@@ -1,7 +1,7 @@
 👋 Hi, I am Stine - a creative, yet business minded woman with a BA(Hons) in Fashion Promotion and Imaging, and currently a masters degree student in Computer Science with specialization in Cyber Security
 
 About me:
-- I am a social creature and laugh alot
+- I am a social creature and laugh a lot
 - I have an excellent understanding of systems and routines
 - I am a quick learner, and adapt easily to the situation and environment
 
